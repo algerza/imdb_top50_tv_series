@@ -2,7 +2,7 @@
 
 <br>
 
-![HomerURL](https://sprcdn-assets.sprinklr.com/674/8b955864-7307-4d41-8ded-c194170f5305-2729152590.jpg)
+![HomerURL](https://cdn-images-1.medium.com/max/1600/1*zOe9FNe9wQY-8ZnUc6GvyA.jpeg)
 
 <br>
 
